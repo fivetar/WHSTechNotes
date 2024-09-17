@@ -3,3 +3,6 @@ I absolutely love using Canva because it offers an incredible range of creative 
 
 # September 13, 2024
 "I believe you provided clear step-by-step instructions that were easy to follow. You also helped us understand how the process works and what happens at each stage. Personally, I didn’t encounter any challenges or difficulties, likely because I’ve done this before. The clear information you provided made everything much easier to understand."
+
+# September 17, 2024
+This is a free week
