@@ -87,3 +87,6 @@ Lately, I’ve been feeling a mix of emotions—mentally I’m a bit overwhelmed
 
 # April 7, 2025
 I think AI tools could really help with studying and preparing for the STAAR test, especially when it comes to reviewing specific topics or explaining things in a simpler way. For example, if I don’t understand a math concept, I could ask something like ChatGPT to explain it differently or give me practice problems. That kind of instant help can make studying feel less frustrating and more focused. It’s also helpful that AI is available anytime, so I don’t have to wait for a teacher or tutor to be free. The most useful feature of an AI tutor for me would probably be personalized practice questions and instant feedback. Sometimes it’s hard to know what I need to study more, but if an AI tool could track my progress and show me what to work on, that would save a lot of time. I think I’d use it, especially during test weeks, because it would help me stay organized and less stressed. As long as it’s accurate and easy to use, I could see it becoming a regular part of how I prepare for big exams.
+
+# April 14, 2025
+This is a free week
