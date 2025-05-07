@@ -90,3 +90,6 @@ I think AI tools could really help with studying and preparing for the STAAR tes
 
 # April 14, 2025
 This is a free week
+
+# May 5, 2025
+I believe 100 unarmed men could not defeat a silverback gorilla. A fully grown silverback can weigh up to 400 pounds and has incredible strength, speed, and aggression. These animals can lift over 1,000 pounds, run up to 20 miles per hour, and deliver powerful blows or bites that could seriously injure or kill a human. Even with numbers, unarmed people would struggle to coordinate or avoid panic, making the group more vulnerable. Logically and physically, the odds are overwhelmingly in the gorilla’s favor. This challenge going viral shows how easily unrealistic or dangerous ideas can spread online. It blurs the line between entertainment and reality, especially for younger audiences who may not understand the consequences or biology involved. People might take away the wrong message, such as underestimating wild animals or treating life-and-death situations as games. These kinds of trends matter because they shape how we think and what we believe is possible, even if it's far from the truth.
