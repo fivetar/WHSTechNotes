@@ -96,3 +96,6 @@ I believe 100 unarmed men could not defeat a silverback gorilla. A fully grown s
 
 # May 12, 2025
 I believe the "Chromebook Challenge" is completely unethical. Even if it's meant as a joke, sticking pencils or other objects into USB ports can damage the device or even cause it to catch fire. That’s not only dangerous but also irresponsible. People might think it's funny or harmless, but it risks hurting others and destroying expensive school property. As students and future professionals in tech, we have to take our responsibilities seriously and treat technology with respect. This trend shows why safety and responsible tech use really matter. Schools give us access to computers to help us learn, not to mess around and break them. If we start doing things like this for attention or online clout, we could lose access to that tech or even get in trouble. We need to think about the real consequences before doing something just because it’s trending. Being responsible now helps us build good habits for the future when we’ll use even more advanced technology in college or careers.
+
+# May 19, 2025
+YESSSSS Im ready for summer!!!
